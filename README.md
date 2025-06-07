@@ -4,6 +4,8 @@
 > W.I.P. Check my patreon 4 info.
 >
 > Hyperactive sometimes, if not most the time. Sometimes not. Please bear with me. >.<
+>
+> ⛔ Dry/slow responses. Do not expect me to be talkative. 🌙 Normal responses.
 
 ### 𖥔 　　　　　　　【 [PATREON](https://www.patreon.com/c/supportingconstellation) 】　—　【 [ATABOOK](https://thatonedockdweller.atabook.org/) 】
 

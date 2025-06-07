@@ -6,7 +6,8 @@
 
 > Neutral about most ships, just do not force ships onto me. (Looking at you, Doublefedora-ians.)
 
-> My patreon has more info. Although, it is mostly oudated. Mainly due to laziness. Whoops. 
+> My patreon has more info. Although, it is slightly oudated. Mainly due to laziness. Whoops. 
 
 ### 𖥔 　　　　　　　【 [PATREON](https://www.patreon.com/c/supportingconstellation) 】　—　【 [ATABOOK](https://thatonedockdweller.atabook.org/) 】
 
+　　　　　　　　　　　　　　　　　![](https://komarev.com/ghpvc/?username=ROLLORD1E&color=3c5540&label=Gamblers&style=for-the-badge)

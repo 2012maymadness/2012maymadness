@@ -11,3 +11,5 @@
 ### 𖥔 　　　　　　　【 [PATREON](https://www.patreon.com/c/supportingconstellation) 】　—　【 [ATABOOK](https://thatonedockdweller.atabook.org/) 】
 
 　　　　　　　　　　　　　　　　　![](https://komarev.com/ghpvc/?username=ROLLORD1E&color=3c5540&label=Gamblers&style=for-the-badge)
+
+![image](https://github.com/user-attachments/assets/eec5a76a-8230-4672-8395-f378287e072d)

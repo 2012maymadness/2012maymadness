@@ -10,7 +10,7 @@
 
 > My patreon has more info. Although, it is slightly oudated. Mainly due to laziness. Whoops. 
 
-### 𖥔 　　　　　　　【 [PATREON](https://www.patreon.com/c/supportingconstellation) 】　—　【 [ATABOOK](https://thatonedockdweller.atabook.org/) 】
+### 𖥔 　　　　　　　【 [PATREON] (currently closed 4 renovation) 】　—　【 [ATABOOK](https://thatonedockdweller.atabook.org/) 】
 
 　　　　　　　　　　　　　　　　　![](https://komarev.com/ghpvc/?username=2012maymadness&color=4f357d&label=Robloxians&style=for-the-badge)
 

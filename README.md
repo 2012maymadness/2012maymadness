@@ -8,7 +8,7 @@
 
 > Neutral about most ships, just do not force ships onto me.
 
-> My patreon has more info. Although, it is slightly oudated. Mainly due to laziness. Whoops. 
+> My patreon has more info. Make sure you check the date updated - as i don't update it /that/ frequently... whoops?
 
 ### 𖥔 　　　　　　　【 [PATREON](https://www.patreon.com/c/supportingconstellation/about) 】　—　【 [ATABOOK](https://thatonedockdweller.atabook.org/) 】
 

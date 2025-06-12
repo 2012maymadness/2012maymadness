@@ -10,10 +10,13 @@
 
 > My patreon has more info. Although, it is slightly oudated. Mainly due to laziness. Whoops. 
 
-### 𖥔 　　　　　　　【 [PATREON] (currently closed 4 renovation) 】　—　【 [ATABOOK](https://thatonedockdweller.atabook.org/) 】
+### 𖥔 　　　　　　　【 [PATREON](https://www.patreon.com/c/supportingconstellation/about) 】　—　【 [ATABOOK](https://thatonedockdweller.atabook.org/) 】
 
 　　　　　　　　　　　　　　　　　![](https://komarev.com/ghpvc/?username=2012maymadness&color=4f357d&label=Robloxians&style=for-the-badge)
 
-　　　　　　　　　　　　　　　　　　 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=10&duration=2000&color=8E9EAE&multiline=true&repeat=false&width=435&lines=I'M+NOT+A+GUY+IDIOT;+WHAT+DO+I+HAVE+TO+DO%3F;GO+BUY+A+WEBCAM+JUST+TO+PROVE+IM+A+GIRL%3F+-+Caleb244%2C+Roblox+Forums)](https://git.io/typing-svg)
+　　　　　　　　　　　　　　 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=15&duration=1700&pause=1000&color=E9E9E9&multiline=true&width=423&height=95&lines=I'M+NOT+A+GUY+IDIOT;WHAT+DO+I+HAVE+TO+DO%3F;GO+BUY+A+WEBCAM+JUST+TO+PROVE+IM+A+GIRL%3F;-+Caleb244%2C+Roblox+Forums)](https://git.io/typing-svg)
 
-　　　　　　　　　　　　　　 ![image](https://github.com/user-attachments/assets/eec5a76a-8230-4672-8395-f378287e072d)
+　　　　　　　　　　　![image](https://github.com/user-attachments/assets/eec5a76a-8230-4672-8395-f378287e072d)
+![image](https://github.com/user-attachments/assets/60fd9fc7-dbf0-472d-9ae7-26223659fb83)
+
+

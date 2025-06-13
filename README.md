@@ -8,7 +8,9 @@
 
 > Neutral about most ships, just do not force ships onto me.
 
-> My patreon has more info. Make sure you check the date updated - as i don't update it /that/ frequently... whoops?
+> My patreon has more info. Make sure you check the date updated - as i don't update it *that* frequently... whoops?
+
+> I recently did a friendlist purge. I'm sorry if i unfriended you.
 
 ### 𖥔 　　　　　　　【 [PATREON](https://www.patreon.com/c/supportingconstellation/about) 】　—　【 [ATABOOK](https://thatonedockdweller.atabook.org/) 】
 

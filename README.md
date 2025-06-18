@@ -4,7 +4,7 @@
 
 # 
 > Hiya. I'm Candie. I'm hyperactive sometimes, if not most the time. Sometimes not. Please bear with me. >.<  　　　　　　　　　　　
-> Status meanings for reference: ⛔ > Dry/slow responses. Probably in a sour mood. (but yes, you can c+h if im alone.)　|| 🌙 > Normal responses. By that - i mean i'm gonna be loud as ####.
+> Status meanings for reference: ⛔ > Dry/slow responses. Probably in a sour mood, interact at your own risk.　|| 🌙 > Normal responses. By that - i mean i'm gonna be loud as ####.
 
 > Neutral about most ships, just do not force ships onto me.
 

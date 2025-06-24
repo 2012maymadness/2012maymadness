@@ -4,13 +4,13 @@
 
 # 
 > Hiya. I'm Candie. I'm hyperactive sometimes, if not most the time. Sometimes not. Please bear with me. >.<  　　　　　　　　　　　
-> Status meanings for reference: ⛔ > Dry/slow responses. Probably in a sour mood, interact at your own risk.　|| 🌙 > Normal responses. By that - i mean i'm gonna be loud as ####.
+> Status meanings for reference: ⛔ > Dry/slow responses. Probably in a sour mood, interact with caution.　|| 🌙 > Normal responses. By that - i mean i'm gonna be loud as ####.
 
-> Neutral about most ships, just do not force ships onto me.
+> Neutral about most ships, just do not force ships onto me. Same with headcanons. (Directed towards the 'chance is in debt' stuff.)
 
-> My patreon has more info. Make sure you check the date updated - as i don't update it *that* frequently... whoops?
+> My patreon has more info if you'd like to know more about me.! Make sure you check the date updated - as i don't update it *that* frequently... whoops?
 
-> IWC in my pony names usually mean caution rather than care. "Why'? I don't need to tell you.
+> I neglect using tone tags most of the time, unless i feel like it is needed. Yes, my grammar is PRETTY bad *especially* during interactions at docks, so you don't need to tell me twice. Sorry in advance.
 
 ### 𖥔 　　　　　　　【 [PATREON](https://www.patreon.com/c/supportingconstellation/about) 】　—　【 [ATABOOK](https://thatonedockdweller.atabook.org/) 】
 

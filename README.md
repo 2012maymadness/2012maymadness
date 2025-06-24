@@ -10,7 +10,7 @@
 
 > My patreon has more info. Make sure you check the date updated - as i don't update it *that* frequently... whoops?
 
-> I recently did a friendlist purge. I'm sorry if i unfriended you.
+> IWC in my pony names usually mean caution rather than care. "Why'? I don't need to tell you.
 
 ### 𖥔 　　　　　　　【 [PATREON](https://www.patreon.com/c/supportingconstellation/about) 】　—　【 [ATABOOK](https://thatonedockdweller.atabook.org/) 】
 

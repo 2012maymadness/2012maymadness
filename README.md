@@ -14,6 +14,8 @@
 > My patreon has more info if you'd like to know more about me.! Make sure you check the date updated - as i don't update it *that* frequently... whoops?
 > 
 > I neglect using tone tags most of the time, unless i feel like it is needed. Yes, my grammar is PRETTY bad *especially* during interactions at docks, so you don't need to tell me twice. Sorry in advance.
+>
+> I know i'm everywhere. You don't need to tell me that you know me. "Why?" ... because i cant remember everyone, ok? x_x
 
 ### 𖥔 　　　　　　　【 [PATREON](https://www.patreon.com/c/supportingconstellation/about) 】　—　【 [ATABOOK](https://thatonedockdweller.atabook.org/) 】
 

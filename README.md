@@ -19,9 +19,10 @@
 >
 > I know i'm everywhere. You don't need to tell me that you know me. "Why?" ... because i cant remember everyone, ok? x_x
 
-### 𖥔 　　　　　　　【 [PATREON](https://www.patreon.com/c/supportingconstellation/about) 】　—　【 [ATABOOK](https://thatonedockdweller.atabook.org/) 】
+### 𖥔 　　　　　　　【 [PATREON](https://www.patreon.com/c/supportingconstellation/about) 】　— 【 [PRONOUNS PAGE](https://pronouns.cc/@candie) 】 —　【 [ATABOOK](https://thatonedockdweller.atabook.org/) 】
 
-　　　　　　　　　　　　　　　　　![](https://komarev.com/ghpvc/?username=2012maymadness&color=4f357d&label=Robloxians&style=for-the-badge)
+
+　　　　　　　　　　　　　　　　　　　　　　　　![](https://komarev.com/ghpvc/?username=2012maymadness&color=4f357d&label=Robloxians&style=for-the-badge)
 
 > Feel free to add friend me after we've talked a buncha times. I'm always free for new moots. ^_^
 

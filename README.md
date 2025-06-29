@@ -3,7 +3,7 @@
 
 
 # 
-> Hiya.! I'm Candie. Also known as ITrapped/Caleb. I'm hyperactive sometimes, if not most the time. Sometimes not. Please bear with me. >.<
+> Hiya.! I'm Candie. Also known as ITrapped. I'm hyperactive sometimes, if not most the time. Sometimes not. Please bear with me. >.<
 >
 > These are indicated by my status. Usually, if i am on BUSY, i will be more quiet, unless i forget to change statuses.
 >

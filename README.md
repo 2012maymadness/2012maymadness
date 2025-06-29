@@ -10,10 +10,9 @@
 > "What do you mean by hyperactive?" it means i cant stfu. Quite literally... 0_o (I'm a big yapper, okay.)
 
 > Away / Busy are the only statuses that i typically use. IWC(caution) If i have busy on.
+> Neutral about most ships, just do not force ships onto me. Same with goes with headcanons.
 
-> Neutral about most ships, just do not force ships onto me. Same with headcanons.
-
-> My patreon has more info if you'd like to know more about me.! Make sure you check the date updated - as i don't update it *that* frequently... whoops?
+> My patreon/pronouns page has more info if you'd like to know more about me.! Make sure you check the date updated - as i don't update it *that* frequently... whoops?
 > 
 > I neglect using tone tags most of the time, unless i feel like it is needed. Yes, my grammar is PRETTY bad *especially* during interactions at docks, so you don't need to tell me twice. Sorry in advance.
 >

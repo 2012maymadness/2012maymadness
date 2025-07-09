@@ -1,11 +1,30 @@
-![image](https://github.com/user-attachments/assets/e151198e-80dd-422b-b753-1519005c6bf5)
-
+![image](https://github.com/user-attachments/assets/96dc8d37-3797-4e35-83be-06a27c8578cd)
 
 
 # 
 
-um.. remaking... ye...
-check out my patreon for info. yey ^_^
+---
+>![image](https://github.com/user-attachments/assets/f936896d-3d81-438e-b022-c1e318ad5ae6) 　　　 Hello, i'm Candie! Or ITrapped, and you can also call me by the current cosplay i'm using. I tend to be hyperactive most of the time, and sometimes not.
+>
+> Busy usually means i'll be more quiet. Away usually means i'm my normal joyous self. Feel free to INT unless i have DNI in my name!
+
+> For the basics... I neglect using tonetags. I tend to be loud and misspell a lot. (unless roleplaying)
+
+> Check out my patreon for more info. Sign my atabook while you're at it! ^_^
+
+---
 
 ### 𖥔 　　　　　　　【 [PATREON](https://www.patreon.com/c/supportingconstellation/about) 】　— 【 [PRONOUNS PAGE](https://pronouns.cc/@candie) 】 —　【 [ATABOOK](https://thatonedockdweller.atabook.org/) 】
+
+---
+
+![](https://komarev.com/ghpvc/?username=2012maymadness&label=ROBLOXIANS&base=56&color=9745d1)
+
+> Drawings are not mine... although the ones i post on my patreon are mine.
+
+![image](https://github.com/user-attachments/assets/b55fcd58-fe13-48fd-a920-5cf37ec65bbd)
+![image](https://github.com/user-attachments/assets/81ae0a04-5650-4758-9dd4-4f44431042c6)
+
+https://github.com/user-attachments/assets/4613eba2-581e-47f1-a0fa-3a194f02cf8e
+> @Drywalls and me (excluding the last part)
 

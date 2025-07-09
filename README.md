@@ -9,6 +9,8 @@
 > Busy usually means i'll be more quiet. Away usually means i'm my normal joyous self. Feel free to INT unless i have DNI in my name!
 
 > For the basics... I neglect using tonetags. I tend to be loud and misspell a lot. (unless roleplaying)
+> 
+> Even if we're friends, i rarely reach out first unless you're extremely close. Sorry, it's just something i do.
 
 > Check out my patreon for more info. Sign my atabook while you're at it! ^_^
 

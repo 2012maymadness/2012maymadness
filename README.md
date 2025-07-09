@@ -8,7 +8,7 @@
 >
 > Busy usually means i'll be more quiet. Away usually means i'm my normal joyous self. Feel free to INT unless i have DNI in my name!
 
-> For the basics... I neglect using tonetags. I tend to be loud and misspell a lot. (unless roleplaying) I am already taken, so don't try and hook up with me. (... or do?? i can't stop you.)
+> For the basics... I neglect using tonetags. I tend to be loud and misspell a lot. (unless roleplaying) I am already taken, so don't try and hook up with me. (... or do?? i can't stop you. not saying itd work.)
 > 
 > Even if we're friends, i rarely reach out first unless you're *extremely* close. Oorr if i'm feeling like it. Sorry, it's just something i do.
 

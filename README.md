@@ -22,9 +22,10 @@
 
 > Drawings are not mine... although the ones i post on my patreon are mine.
 
+https://github.com/user-attachments/assets/4613eba2-581e-47f1-a0fa-3a194f02cf8e
+> @Drywalls and me (excluding the last part)
+
 ![image](https://github.com/user-attachments/assets/b55fcd58-fe13-48fd-a920-5cf37ec65bbd)
 ![image](https://github.com/user-attachments/assets/81ae0a04-5650-4758-9dd4-4f44431042c6)
 
-https://github.com/user-attachments/assets/4613eba2-581e-47f1-a0fa-3a194f02cf8e
-> @Drywalls and me (excluding the last part)
 

@@ -4,11 +4,11 @@
 # 
 
 ---
->![image](https://github.com/user-attachments/assets/f936896d-3d81-438e-b022-c1e318ad5ae6) 　　　 Hello, i'm Candie! Or ITrapped, and you can also call me by the current cosplay i'm using. I tend to be hyperactive most of the time, and sometimes not.
+>![image](https://github.com/user-attachments/assets/f936896d-3d81-438e-b022-c1e318ad5ae6) 　　　 Hello, i'm Candie! Or ITrapped, and you can also call me by the current cosplay i'm using. I tend to be hyperactive most of the time, and sometimes not. In general i'm a very loud talkative person but that tends to shift a lot. Whoops...?
 >
 > Busy usually means i'll be more quiet. Away usually means i'm my normal joyous self. Despite that, feel free to INT unless i have DNI in my name!
 
-> For the basics... I neglect using tonetags. I tend to be loud and misspell a lot. (unless roleplaying) I am already taken, so don't try and hook up with me. (... or do?? i can't stop you. not saying itd work.)
+> For the basics... I neglect using tonetags. I tend to misspell a lot. (unless roleplaying) I am already taken, so don't try and hook up with me. (... or do?? i can't stop you. not saying itd work.)
 > 
 > Even if we're friends, i rarely reach out first unless you're *extremely* close. Oorr if i'm feeling like it. I'm an introvert at heart T_T 
 

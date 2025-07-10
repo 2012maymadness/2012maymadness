@@ -12,7 +12,7 @@
 > 
 > Even if we're friends, i rarely reach out first unless you're *extremely* close. Oorr if i'm feeling like it. I'm an introvert at heart T_T 
 
-> Check out my patreon for more info. Sign my atabook while you're at it! ^_^
+> ![image](https://github.com/user-attachments/assets/aaeee1c5-e276-4bcc-b89e-c7ab70b69f77) 　　　 Check out my patreon for more info. Sign my atabook while you're at it! ^_^
 
 ---
 

@@ -10,7 +10,7 @@
 
 > For the basics... I neglect using tonetags. I tend to misspell a lot. (unless roleplaying) I am already taken, so don't try and hook up with me. (... or do?? i can't stop you. not saying itd work.)
 >
-> ALSO TO SET THE RECORD STRAIGHT - I AM NOT IN A ROMANTIC RELATIONSHIP WITH @fr0zendebt >:n stop shipping us out of character <\3 Joke or not, it makes me really.. eugh.
+> ALSO TO SET THE RECORD STRAIGHT - I AM NOT IN A ROMANTIC RELATIONSHIP WITH  @1-800-SYSTEM I HAVE TO REPEAT THIS SOOO MANY TIMES. >:n stop shipping us out of character <\3 Joke or not, it makes me really.. eugh.
 > 
 > Even if we're friends, i rarely reach out first unless you're *extremely* close. Oorr if i'm feeling like it. I'm an introvert at heart T_T 
 
